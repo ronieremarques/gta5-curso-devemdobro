@@ -1,0 +1,1 @@
+Por um grande interesse na areá da programação tiver uma grande curiosidade para participar do evento dev em dobro, não por ser iniciante mais para saber oque ele iriam ensinar é até para aprender algo novo.
